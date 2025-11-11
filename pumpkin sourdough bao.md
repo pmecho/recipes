@@ -1,4 +1,4 @@
-Adapted from Modernist Cuisine's steamed bunds that use yeast and [The Takeout's Char Siu Turkey](https://www.thetakeout.com/recipe-char-siu-turkey-pumpkin-bao-cranberry-hoisin-1845584676/).
+Adapted from Modernist Cuisine's steamed buns that use yeast and [The Takeout's Char Siu Turkey](https://www.thetakeout.com/recipe-char-siu-turkey-pumpkin-bao-cranberry-hoisin-1845584676/).
 
 ## Bao buns
 
